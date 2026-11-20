@@ -11,21 +11,21 @@ Three 60–75 second Shorts built on the Ricks Clips formula: strange opening �
 **Title:** The Stone That Said "Don't Build Here"
 **Alt titles:** Why This Village Survived the Tsunami · The Warning Nobody Read
 
-He carved one sentence into a stone and set it halfway up a mountain. *Do not build your homes below this point.* [Old stickman chiselling a stone on a hillside]
+They carved a warning into a stone and set it halfway up a mountain. *Do not build your homes below this point.* [Old stickman chiselling a stone on a hillside]
 
 You see, this was a tiny fishing village in Japan, and the sea had already wiped it out. Twice. In 1896, only two people survived. In 1933, only four. So the survivors put up the stone and moved every house above it. [Two waves sweep a village; then a few stickmen carrying a house uphill]
 
-But up there, the walk to the boats is long and steep. Every single morning. Uphill, downhill, carrying nets. And down by the water, the flat land is just sitting there. Easy. Other towns along the coast build right on the shore, behind big new sea walls. They call it progress. [Tired stickman with nets on a steep path; a shiny town behind a wall below]
+But up there, life is harder. The walk down to the boats is long and steep. Every single morning, carrying nets. And along the coast, other towns build right on the water, behind big new sea walls. Flat land, easy roads. They call it progress. [Tired stickman with nets on a steep path; a shiny town behind a wall below]
 
-Years pass. The people who saw the waves grow old and pass away. Moss covers the stone. Kids walk past it to school without even reading it. "Why live on a mountain when the sea has a wall?" [Mossy stone, kids walking past, one shrugs]
+To outsiders, the little village looks stuck in the past. "Why live on a mountain when the sea has a wall?" But nobody in the village builds below the stone. Not their children. Not their grandchildren. [Shiny coastal town; then generations passing the mossy stone without crossing it]
 
 Then, March 11th, 2011. The ground shakes for minutes. Down the coast, the sea walls were built for a big wave. This one is bigger. It pours over them like they aren't there. [Wave spilling over a wall]
 
 It rushes up the valley toward the little village. Past the fields. Past the road. Still climbing. And it stops about 300 feet below the stone. [Water creeping uphill, slowing, stopping; camera pans up to the stone]
 
-Every house above that line was still standing. Because the people who'd seen it twice wrote down exactly where the water ends. [Villagers standing beside the stone looking down]
+Every home in the village was above that line. Because the people who'd seen it twice wrote down exactly where the water ends. [Villagers standing beside the stone looking down]
 
-**Fact check:** Aneyoshi, Iwate Prefecture. The stone went up after the 1933 tsunami. The survivor counts (2 in 1896, 4 in 1933) and the 2011 wave stopping about 300 feet below the stone come from the widely reported 2011 coverage (e.g. AP/NYT). Read the inscription in the voiceover as a paraphrase.
+**Fact check:** Aneyoshi, Iwate Prefecture, a hamlet of about 11 households. The stone went up after the 1933 tsunami. Who carved it isn't recorded, so the script says "they". The villagers obeyed the stone, so the doubt in the script comes from outsiders, not the village (revised 20 Nov). The survivor counts (2 in 1896, 4 in 1933) and the 2011 wave stopping about 300 feet (about 90 m) below the stone are from the 2011 NYT/AP reporting. Read the inscription in the voiceover as a paraphrase.
 
 ## Script 2 — The Doctor Who Drank the Bacteria
 
